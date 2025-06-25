@@ -1,6 +1,6 @@
 # Fuentes
 
-Investigación proyecto de ciencias bachillerato.
+¡Hola!Esta seccion contiene los enlaces y referencias de las paginas web que consulte para obtener la informacion presentada en el triptico
 http://www.envaselia.com/blog/tereftalato-de-polietileno-id12.htm&usg=AOvVaw1_QIBn3uqD_8MlgPhqMZxn
 https://www.google.com/url?q=https://chatgpt.com/c/684b06ac-97d4-800b-999b-60fa844ebe1b&usg=AOvVaw2B4YdPNSqIIyPYqNhxUhCA
 https://local.google.com/place?use=srp&id=6770826390320224952
